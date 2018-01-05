@@ -1,3 +1,0 @@
-# WDP-homework-1
-
-
